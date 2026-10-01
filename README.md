@@ -192,11 +192,10 @@ You can keep the complete client relationship while I handle the development und
 
 ## 🔗 Connect With Me
 
-**Shopify Partner:**
-https://www.shopify.com/partners/directory/partner/airwebs
-
-**GitHub:**
-https://github.com/vnyvin123
+📧 **Email:** [vnygupta21@gmail.com](mailto:vnygupta21@gmail.com)
+📱 **Phone / WhatsApp:** [+91 7007466933](tel:+917007466933)
+💻 **GitHub:** [github.com/vnyvin123](https://github.com/vnyvin123)
+🛍️ **Shopify Partner:** [Shopify Partner Profile](https://www.shopify.com/partners/directory/partner/airwebs)
 
 ---
 
